@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Frederikpool15
+s- 👋 Hi, I’m @Frederikpool15
 - 👀 I’m interested in roblox games
 - 🌱 I’m currently learning this new 
 - 📫 How to reach me your power
